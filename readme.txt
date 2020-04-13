@@ -1,0 +1,1 @@
+il faut sortir le dossier wordpress de ma liseuse 
